@@ -2,7 +2,7 @@
 
 ## Links to lecture recordings:
 
-Day 1 - 
+Day 1 - https://youtu.be/JZGQN_3oT_4
 
 Day 2 - https://youtu.be/e4ElH8fuITA
 
